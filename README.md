@@ -37,7 +37,7 @@
 
 ![image](https://github.com/ClarisaD/ONA19-New_Orleans-Climate_Change-Design-and-Public_Service_Journalism/blob/master/17.jpg)
 
-![image](https://github.com/ClarisaD/ONA19-New_Orleans-Climate_Change-Design-and-Public_Service_Journalism/blob/master18.jpg)
+![image](https://github.com/ClarisaD/ONA19-New_Orleans-Climate_Change-Design-and-Public_Service_Journalism/blob/master/18.jpg)
 
 ![image](https://github.com/ClarisaD/ONA19-New_Orleans-Climate_Change-Design-and-Public_Service_Journalism/blob/master/19.jpg)
 
